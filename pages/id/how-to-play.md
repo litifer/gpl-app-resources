@@ -2,9 +2,17 @@
 
 ## Bagaimana caranya? 😄 Pertama, unduh dan daftar untuk mulai bermain. 📲
 
-[![screen-video-icon](https://github.com/litifer/gpl-app-resources/assets/10615264/2b6faeed-2741-4b41-973b-aff78b56a6b1)](https://github.com/litifer/gpl-app-resources/raw/main/assets/video/how-to-install-c.mp4)
+[![screen-video-icon](https://github.com/litifer/gpl-app-resources/assets/10615264/9d5dede3-a72c-44ed-b549-e7ec4ce64887)](https://github.com/litifer/gpl-app-resources/assets/10615264/5c5b11f1-b772-4809-bcbd-c4f82e98cb49)
 
 ## 📝 Selanjutnya, buat tim seru untuk beraksi. 👥
 
-[![screen-video-icon](https://github.com/litifer/gpl-app-resources/assets/10615264/2b6faeed-2741-4b41-973b-aff78b56a6b1)](https://github.com/litifer/gpl-app-resources/raw/main/assets/video/how-to-install-c.mp4)
+[![screen-video-icon](https://github.com/litifer/gpl-app-resources/assets/10615264/9d5dede3-a72c-44ed-b549-e7ec4ce64887)](https://github.com/litifer/gpl-app-resources/assets/10615264/5c5b11f1-b772-4809-bcbd-c4f82e98cb49)
 
+
+## 📝 Selanjutnya, buat tim seru untuk beraksi. 👥
+
+[![screen-video-icon](https://github.com/litifer/gpl-app-resources/assets/10615264/9d5dede3-a72c-44ed-b549-e7ec4ce64887)](https://github.com/litifer/gpl-app-resources/assets/10615264/5c5b11f1-b772-4809-bcbd-c4f82e98cb49)
+
+## 📝 Selanjutnya, buat tim seru untuk beraksi. 👥
+
+[![screen-video-icon](https://github.com/litifer/gpl-app-resources/assets/10615264/9d5dede3-a72c-44ed-b549-e7ec4ce64887)](https://github.com/litifer/gpl-app-resources/assets/10615264/5c5b11f1-b772-4809-bcbd-c4f82e98cb49)
