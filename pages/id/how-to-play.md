@@ -1,5 +1,6 @@
-
-![banner](https://github.com/litifer/gpl-app-resources/assets/10615264/f81a9db2-a0dd-41db-9f4c-769a6e9a5b9a)
+---
+banner: https://github.com/litifer/gpl-app-resources/assets/10615264/f81a9db2-a0dd-41db-9f4c-769a6e9a5b9a
+---
 
 
 # 🎮 Yuk, mainkan dan menangkan 1000 ribu di GPL! 🏆💰
